@@ -1,4 +1,4 @@
-# Selling-roblox-acc 5e steam wallet , or discord nitro gift
+# Selling-roblox-acc 5e steam wallet , 
 with gamepass for these games and with 293 robux
 
 ,"---The Vampire Legacies- Dark Josie,Kol Mikaelson,Niklaus Mikaelson,Mikael Mikaelson,Alaric Saltzman-------,"
